@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Camtasia for PC | Camtasia for Windows script with premium Camtasia for PC | Camtasia for Windows Script | 4K-export + time-remapping. Featuring 4K-export and
 
 
 
